@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+I whish you a very nice day, don't hesitate to reach out to me !
+
 <!--
 **berre74/berre74** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
